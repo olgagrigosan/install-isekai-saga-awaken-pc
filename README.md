@@ -1,0 +1,1 @@
+# install-isekai-saga-awaken-pc
